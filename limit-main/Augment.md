@@ -6,9 +6,9 @@
 
 > 没梯子的推荐这2个，便宜稳定，几块钱一个月
 > 
-https://xn--h5qy75o.com/index.html?register=MJ8s74oD
+https://xn--h5qy75o.com/index.html?register=hkk38K22
 > 
-https://mitce.net/aff.php?aff=19176
+https://mitce.net/aff.php?aff=19372
 
 -
 ### 1. Clash Verge下载  [https://github.com/clash-verge-rev/clash-verge-rev/](https://github.com/clash-verge-rev/clash-verge-rev/)
